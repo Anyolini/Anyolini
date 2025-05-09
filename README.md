@@ -18,7 +18,6 @@ I'm eager to learn from and work alongside developers who are also exploring the
 
 📬 Let’s Connect:
 
-https://www.linkedin.com/feed/?trk=warm-login-submit
-Anyoliniozuna@hotmail.com
+
 
 Open to networking project collaboration, and new opportunities!
